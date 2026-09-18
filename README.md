@@ -1,0 +1,1 @@
+# Pemrograman_SofiNurPermatasari_Copper_TLS26
